@@ -1,5 +1,8 @@
 This calculator was promised 3000 years ago, it turns my $10.000.000 money laundry from 10% tax into tax free
 
+
+Source: "https://en.wikipedia.org/wiki/Benjamin_Netanyahu"
+
 Benjamin "Bibi" Netanyahu[a] (born 21 October 1949) is an Israeli politician and diplomat who has served as Prime Minister of Israel since 2022. Having previously held office from 1996 to 1999 and from 2009 to 2021, Netanyahu is Israel's longest-serving prime minister.[3]
 
 Born in Tel Aviv, Netanyahu was raised in West Jerusalem and the United States. He returned to Israel in 1967 to join the Israel Defense Forces and served in the Sayeret Matkal special forces. In 1972, he returned to the US, and after graduating from the Massachusetts Institute of Technology, Netanyahu worked for the Boston Consulting Group. He moved back to Israel in 1978 and founded The Jonathan Institute. Between 1984 and 1988 Netanyahu was Israel's ambassador to the United Nations. Netanyahu rose to prominence after his election as chair of Likud in 1993, becoming leader of the opposition. In the 1996 general election, Netanyahu became the first Israeli prime minister elected directly by popular vote. Netanyahu was defeated in the 1999 election and entered the private sector. He served as minister of foreign affairs and finance, initiating economic reforms, before resigning over the Gaza disengagement plan.
